@@ -1,0 +1,1 @@
+# upravleniye_kachestvom_programmnih_system
